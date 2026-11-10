@@ -213,4 +213,4 @@ Trine is available as a complete free version with all features and updates incl
 Don’t miss out on this enchanting adventure! Download Trine today and experience the magic for yourself!
 
 ---
-**Last updated:** 2026-11-10 18:24:55 UTC
+**Last updated:** 2026-11-10 23:51:47 UTC
